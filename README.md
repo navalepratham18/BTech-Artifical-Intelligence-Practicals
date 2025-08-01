@@ -1,0 +1,1 @@
+# BTech-Practicals-Artifical-Intelligence
